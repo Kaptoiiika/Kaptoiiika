@@ -1,1 +1,1 @@
-My streaming/chat app https://kapitoxa.gay/
+My streaming/chat app https://kapitoxa.lol/
